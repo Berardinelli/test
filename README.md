@@ -1,1 +1,0 @@
-questo file è stato creato dal sito
